@@ -1,4 +1,3 @@
-- 👋 Hi, I’m @Y-KrishnaBhargava
 
 - ⚡ Way Of Life: "From Chaos is the Order born, and so shall it return"
 
